@@ -6,6 +6,7 @@
 </tbody>
 </table>
 <p><img src="https://pro-service.cat/upload/images/limpieza%20tapiceria%20barcelona.jpg" alt="" width="250" height="176" /></p>
+<p><img src="https://i.simpalsmedia.com/999.md/BoardImages/900x900/f7964486494d82bccea3c24abd3def7e.jpg" alt="" width="250" height="188" /></p>
 <table>
 <tbody>
 <tr>
